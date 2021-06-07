@@ -83,7 +83,7 @@
 嗯，真的是肉眼可见。虽然发出来过往照片很毁形象，但无图无真相，为了让你直观感受，还是上图看一下：
 
 
-![前后变化对比图](http://ishanshan.zoomquiet.top/share/facechange003.png?imageView2/2/w/500)
+![前后变化对比图](http://ishanshan.zoomquiet.top/share/facechange003.png ':size=500')
 
 
 
